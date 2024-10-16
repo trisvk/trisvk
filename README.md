@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @trisvk
 - 👀 I’m interested in reading and coding
 - 🌱 I’m currently learning IT
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on people with the same interest
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 
